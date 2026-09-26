@@ -65,7 +65,7 @@ Aspiring **System Analyst** with a strong foundation in database design, network
 
 ## 📫 Connect with Me
 
-- **Email:** your.email@example.com
+- **Email:** saduwork26@gmail.com
 
 ---
 
